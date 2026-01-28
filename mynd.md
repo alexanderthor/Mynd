@@ -1,1 +1,1 @@
-[Click here to watch the demo](./copy_1AAD76E3-DB14-419D-8EA4-D934999C0D2E.mp4)
+[video](./copy_1AAD76E3-DB14-419D-8EA4-D934999C0D2E.mp4)
